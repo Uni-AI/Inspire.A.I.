@@ -8,3 +8,4 @@ Truth!:
 
 index:
 - [AI Automation Agency Will Make You Rich in 2023 - Crazy Opportunity](https://youtu.be/vOtFCtZyUEc)
+- [How to Start Your SIX-FIGURE AI Automation Agency in 4 Steps (FULL GUIDE)](https://youtu.be/5RM4OeJhITY)
